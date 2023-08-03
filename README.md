@@ -1,4 +1,23 @@
-### Hi there 👋
+estudante do  1°Ano do novo esnsino medio
+colegio estadual rio branco - parana
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ ### Hi there 👋
 
 <!--
 **BRAZWZ/brazwz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
